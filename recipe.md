@@ -1,0 +1,11 @@
+How to make Cheesecake!
+- Butter the pan
+- Crush the biscuits
+- Press the bisciuts in the pan
+- Soften the cheese cheese
+- Add sugar,lemon juice and vanilla to the cream
+- Add an egg
+- Mix together
+- Pour batter into the pan
+- Leaving fridge to freeze
+- Cut the cake and enjoy!
